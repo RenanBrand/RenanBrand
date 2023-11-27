@@ -1,4 +1,4 @@
-### Hi there, I am RenanBrand 👋
+### Hi there, I am Renan 👋
 <div>
   <a href="https://github.com/RenanBrand">
 
